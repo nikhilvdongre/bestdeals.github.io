@@ -45,7 +45,7 @@ Portronics Adapto 464,Charger with Safe Time Control Auto Cut-Off, LED Indicator
 <img src="https://images-na.ssl-images-amazon.com/images/I/51uxMTYKTJL._SL1200_.jpg" width="200" height="200">
 # Rs  <s>999</s>  @449  [BUY NOW](https://amzn.to/2H7E7yq)
 
-Ambrane Unbreakable 3A Fast Charging Braided Micro https://images-na.ssl-images-amazon.com/images/I/71FocO44veL._SL1500_.jpgUSB Cable for Android Devices – 1.5 Meter (RCM15, Black)
+Ambrane Unbreakable 3A Fast Charging Braided Micro Cable for Android Devices – 1.5 Meter (RCM15, Black)
 <img src="https://images-na.ssl-images-amazon.com/images/I/71lvlk%2BzwGL._SL1500_.jpg" width="200" height="200">
 # Rs  <s>199</s>  @79  [BUY NOW](https://amzn.to/354TLT6)
 
