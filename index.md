@@ -45,6 +45,19 @@ Portronics Adapto 464,Charger with Safe Time Control Auto Cut-Off, LED Indicator
 <img src="https://images-na.ssl-images-amazon.com/images/I/51uxMTYKTJL._SL1200_.jpg" width="200" height="200">
 # Rs  <s>999</s>  @449  [BUY NOW](https://amzn.to/2H7E7yq)
 
+Ambrane Unbreakable 3A Fast Charging Braided Micro https://images-na.ssl-images-amazon.com/images/I/71FocO44veL._SL1500_.jpgUSB Cable for Android Devices – 1.5 Meter (RCM15, Black)
+<img src="https://images-na.ssl-images-amazon.com/images/I/71lvlk%2BzwGL._SL1500_.jpg" width="200" height="200">
+# Rs  <s>199</s>  @79  [BUY NOW](https://amzn.to/354TLT6)
+
+Mi Notebook 14 Intel Core i5-10210U 10th Gen Thin and Light Laptop(8GB/512GB SSD/Windows 10/Intel UHD Graphics/Silver/1.5Kg), XMA1901-FA+Webcam
+<img src="https://images-na.ssl-images-amazon.com/images/I/71mYRzElTAL._SL1500_.jpg" width="200" height="200">
+# Rs  <s></s>  @43999  [BUY NOW](https://amzn.to/37hal4L)
+
+Boat Deuce USB 300 2 in 1 Type-C & Micro USB Stress Resistant, Tangle-Free, Sturdy Cable with 3A Fast Charging & 480mbps Data Transmission, 10000+ Bends Lifespan and Extended 1.5m Length(Martian Red)
+<img src="https://images-na.ssl-images-amazon.com/images/I/61RtLSD47FL._SL1500_.jpg" width="200" height="200">
+# Rs  <s>600</s>  @219  [BUY NOW](https://amzn.to/3jfVlXz)
+
+
 
 
 
