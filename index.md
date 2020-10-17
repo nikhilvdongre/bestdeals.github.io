@@ -1,4 +1,4 @@
-# Amazon BEST DEALS ( BUY FROM PC ONLY )
+## Amazon BEST DEALS ( BUY FROM PC ONLY )
 
 ## type c charging cable portronics # 
 <img src="https://images-na.ssl-images-amazon.com/images/I/51CvP9P2efL._SL1200_.jpg" width="200" height="200">
